@@ -1,2 +1,2 @@
-# SISTEM-PSAJ-KELAS-7
-Penilaian Sumatif Akhir Tahun (PSAT) Kelas VII_Tahun Ajaran 2025/2026
+# SISTEM-PSAS-KELAS-7
+Penilaian Sumatif Akhir Semester (PSAS) Kelas VII_Tahun Ajaran 2026/2027
